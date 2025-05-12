@@ -8,8 +8,8 @@ But what if you could access **Warmy AI’s premium features at a discounted pri
 By the end, you’ll know how to **get Warmy AI for the lowest price possible**!  
 
 
----  
-![jVrCyp8RtUkZTtDPNvTni3](https://github.com/user-attachments/assets/770feb35-1444-4a91-b17b-1a6431e2d4d5)
+![warmy_37633_pricing-screenshot_1657534522_ijleh](https://github.com/user-attachments/assets/93993898-ee5d-4fe1-93d2-515961ceef84)
+
 
 
 
@@ -75,8 +75,8 @@ Follow these steps to **redeem your discount**:
 💡 **Pro Tip:** Some codes work only for **new users**—clear cookies or use a different email if needed.  
 
 ---  
+![jVrCyp8RtUkZTtDPNvTni3](https://github.com/user-attachments/assets/c01a3d1d-a60b-486f-9a28-1ec1081d629b)
 
-![warmy_37633_pricing-screenshot_1657534522_ijleh](https://github.com/user-attachments/assets/e5efa67d-2962-4f31-80f3-1cb3b1c8e85e)
 
 
 ## **5. Alternative Ways to Save on Warmy AI**  
